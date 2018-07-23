@@ -1,0 +1,18 @@
+# swap
+[._]*.s[a-v][a-z]
+[._]*.sw[a-p]
+[._]s[a-v][a-z]
+[._]sw[a-p]
+# session
+Session.vim
+# temporary
+.netrwhist
+*~
+*.tmp
+# video files
+*.mkv
+*.mp4
+#other files
+*~
+.DS_Store
+*.bak
