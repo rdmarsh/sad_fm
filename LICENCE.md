@@ -1,0 +1,3 @@
+Except where otherwise noted, the content of the [sand.fm](http://sand.fm) website by [Sam and Dave Marsh](/hosts) is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](https://creativecommons.org/licenses/by-sa/4.0/). Based on a work at [http://sand.fm](http://sand.fm). Permissions beyond the scope of this license may be available at [http://sand.fm/attributions-and-copyrights](http://sand.fm/attributions-and-copyrights).
+
+Material provided by [fireside.fm](http://fireside.fm) is copyright Fireside Labs, LLC. See [fireside.fm/terms](https://fireside.fm/terms) for more information.
