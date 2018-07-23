@@ -1,0 +1,25 @@
+* [Broccolini - Wikipedia](https://en.wikipedia.org/wiki/Broccolini)
+* [Ke-mo sah-bee](https://en.wikipedia.org/wiki/Ke-mo_sah-bee)
+* [Leura, New South Wales - Wikipedia](https://en.wikipedia.org/wiki/Leura,_New_South_Wales)
+* [Three Sisters (Australia) - Wikipedia](https://en.wikipedia.org/wiki/Three_Sisters_(Australia))
+* [Lilianfels Resort & Spa](https://www.lilianfels.com.au/)
+* [sand.fm Episode 2: We Lost Our Kids in IKEA](http://sand.fm/2) - Mac and Cheese review
+* [What About Second Breakfast?](https://www.youtube.com/watch?v=XkzvHtjnNOs)
+* [The One With The Proposal](http://friends.wikia.com/wiki/The_One_With_The_Proposal,_Part_2/Transcript) - Chandler is a complex fellow, one who is unlikely to take a wife
+* [BBC Food - Recipes - Smashed avocado on toast](https://www.bbc.co.uk/food/recipes/smashed_avocado_on_toast_89082)
+* [Millionaire tells millennials: if you want a house, stop buying avocado toast](https://www.theguardian.com/lifeandstyle/2017/may/15/australian-millionaire-millennials-avocado-toast-house)
+* [Why Garfield Loves Lasagna and Hates Mondays](https://www.huffingtonpost.com/nell-minow/jim-davis-explains-why-ga_b_6094892.html)
+* [Tom and Jerry - Wikipedia](https://en.wikipedia.org/wiki/Tom_and_Jerry)
+* [Arnott's Shapes - Wikipedia](https://en.wikipedia.org/wiki/Arnott%27s_Shapes)
+* [Twenty Thousand Hertz](https://www.20k.org) - Our podcast of the week
+* [Stephen Hawking dies aged 76](http://www.abc.net.au/news/2018-03-14/stephen-hawking-dies-aged-76/9547454)
+* [The Project on Hawking](https://tenplay.com.au/channel-ten/the-project/2018/3/14) - Jump to Jump to 27:40 for the start of the Stephen Hawking story, and 29:55 for Hugh Riminton talking about his interview
+* [Books by Stephen Hawking](http://www.hawking.org.uk/books.html)
+* [Stephen Hawking - IMDb](http://www.imdb.com/name/nm0370071/)
+* [sand.fm Episode 18: Old Flames and Ex-partners](http://sand.fm/18)
+* [sand.fm reviews](http://sand.fm/reviews)
+* [Twiki](http://buckrogers.wikia.com/wiki/Twiki)
+* [Theopolis](http://buckrogers.wikia.com/wiki/Theopolis)
+* [Robot or Not? | Twiki and Dr. Theopolis (Episode 30)](https://www.theincomparable.com/robot/30/)
+* [Buck Rogers in the 25th Century (TV series) - Wikipedia](https://en.wikipedia.org/wiki/Buck_Rogers_in_the_25th_Century_(TV_series))
+* [Duck Dodgers (TV series) - Wikipedia](https://en.wikipedia.org/wiki/Duck_Dodgers_(TV_series))

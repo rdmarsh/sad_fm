@@ -1,0 +1,1 @@
+* [The dreaded IKEA shopping trip](https://www.youtube.com/watch?v=Xsbb7gyFFf0) - Why do most trips to IKEA end in divorce? It's a sad but true statistic. This is a strategy for maintaining a happy marriage despite the best social engineering of those deviously brilliant Swedes. (Caution Swearing)

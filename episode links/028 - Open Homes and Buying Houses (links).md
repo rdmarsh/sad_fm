@@ -1,0 +1,8 @@
+* [How to make the most of an open for inspection](https://www.domain.com.au/advice/how-to-make-the-most-of-an-open-for-inspection-20161208-gs4wix/)
+* [The six things you should be doing at an open home](https://www.domain.com.au/news/the-six-things-you-should-be-doing-at-an-open-home-20151016-gk9myf/)
+* [Central Coast (New South Wales) - Wikipedia](https://en.wikipedia.org/wiki/Central_Coast_(New_South_Wales))
+* [Sydney, Melbourne among world's least affordable cities](http://www.afr.com/real-estate/sydney-melbourne-among-worlds-least-affordable-cities-us-survey-20180122-h0m7br)
+* [Sydney more expensive to live in than London and New York](https://www.theguardian.com/australia-news/2018/mar/15/sydney-more-expensive-to-live-in-than-london-and-new-york-study-finds)
+* [How long do Australians stay put?](http://www.switzer.com.au/the-experts/john-mcgrath-property-expert/how-long-do-australians-stay-put/)
+* [How many homes does a house hunter view before making an offer?](https://www.tepilo.com/blog/2017/08/how-many-homes-does-a-house-hunter-view-before-making-an-offer)
+* [Should I add a second bathroom?](https://ronafischman.com/should-i-add-a-second-bathroom/)

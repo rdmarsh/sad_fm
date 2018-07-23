@@ -1,0 +1,5 @@
+* [Return and Earn home page](http://returnandearn.org.au/)
+* [Return and Earn Twitter account](https://twitter.com/NSWGovCDS)
+* [NSW Gov site about Return and Earn](http://www.epa.nsw.gov.au/your-environment/recycling-and-reuse/return-and-earn)
+* [Woolworths related price increases](https://www.woolworths.com.au/shop/discover/sustainability/return-and-earn)
+* [Terra nullius](https://en.wikipedia.org/wiki/Terra_nullius)
