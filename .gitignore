@@ -11,6 +11,7 @@ Session.vim
 *.tmp
 # video files
 *.mkv
+*.mov
 *.mp4
 #other files
 *~
