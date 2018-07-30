@@ -1,0 +1,22 @@
+<style type="text/css">
+div.sandfmgallery {
+    margin: 5px;
+    border: 1px solid #ccc;
+    float: left;
+    width: 180px;
+}
+
+div.sandfmgallery:hover {
+    border: 1px solid #777;
+}
+
+div.sandfmgallery img {
+    width: 100%;
+    height: auto;
+}
+
+div.sandfmdesc {
+    padding: 15px;
+    text-align: center;
+}
+</style>
