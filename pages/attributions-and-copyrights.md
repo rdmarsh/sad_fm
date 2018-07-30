@@ -236,3 +236,11 @@ Image attributions and copyrights used for episode [030 - Google WiFi](/030)
 
 * Ch 04: _030 - 04 - Rubber Duck.jpg_ is from [Rubber Duck (8374802487).jpg](https://en.wikipedia.org/wiki/File:Rubber_Duck_(8374802487).jpg) by [Eva Rinaldi](https://www.wikidata.org/wiki/Q37885816) and is is licensed under the [Creative Commons Attribution-Share Alike 2.0 Generic](https://creativecommons.org/licenses/by-sa/2.0/deed.en) license
 
+## Episode 032 - Names and Signatures ##
+
+Image attributions and copyrights used for episode [032 - Names and Signatures](/032)
+
+### Header ###
+
+* The header image _032 - Names and Signatures (header).jpg_ used for this episode is from the [US declaration independence](https://en.wikipedia.org/wiki/File:Us_declaration_independence_signatures.jpg) which is in the [public domain](https://en.wikipedia.org/wiki/Public_domain) in its country of origin.
+
