@@ -1,0 +1,7 @@
+- baseball
+- birthdays
+- climate change
+- cricket
+- automation
+- iot
+- summer

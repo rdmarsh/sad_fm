@@ -1,0 +1,9 @@
+- birthdays
+- gifts
+- kids
+- max the dog
+- podcasts
+- recycling
+- renovations
+- spacex
+- valentines day

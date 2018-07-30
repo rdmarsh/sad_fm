@@ -1,0 +1,6 @@
+- food
+- max the dog
+- movies
+- phone
+- stickers
+- tv

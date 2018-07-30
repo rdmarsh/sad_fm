@@ -1,0 +1,3 @@
+- religion
+- atheism
+- christianity
