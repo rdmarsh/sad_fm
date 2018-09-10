@@ -1,0 +1,26 @@
+- ASMR
+- AirPods
+- Aliens and UFOs
+- Any type of drafts show content
+- Beards
+- Cats vs dogs
+- Do you click or snap your fingers
+- Exam and etc obv
+- Finances
+- First moved out of 'home'
+- Food that sam didn’t know Dave hated and would eat anyway
+- Jury duty
+- Kids and pester power
+- Listening to a podcast and they asked if a tea lady brought tea to the British guys office
+- Marajuana
+- Passwords
+- Queens birthday changed to indigenous day
+- Regrets in our life and how to deal with it. More general stuff maybe
+- Scripture in schools and state church
+- Spiders and bugs (via film snuff)
+- State of Origin
+- Sushi
+- The sex 'talk' and sex education
+- Twitter and follow back
+- Universal Basic Income
+- Would we remarry? (eg after partner death)
